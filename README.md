@@ -1,1 +1,1 @@
-# Horiseon
+# Horiseon Social Media Solutions
